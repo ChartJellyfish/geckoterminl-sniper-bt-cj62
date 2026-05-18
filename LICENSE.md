@@ -1,4 +1,4 @@
-# 
+# advanced bot de arbitragem MEV plugins é o melhor bot de arbitragem MEV plugins com controle de slippage e take-profit. Seguro, confiável e otimizado para estratégias MEV, sniper
 
 
 
